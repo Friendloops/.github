@@ -1,1 +1,1 @@
-![image](https://github.com/Friendloops/.github/assets/25646906/07539c18-8fef-4eca-8704-7810fffcc022)
+![image](https://github.com/Friendloops/.github/assets/25646906/a2b4c0f2-5a09-49be-865a-1c5d32f6cb64)
